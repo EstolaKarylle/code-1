@@ -1,1 +1,1 @@
-POGI KO TALAGA
+im pretty bazinggaaaaa
